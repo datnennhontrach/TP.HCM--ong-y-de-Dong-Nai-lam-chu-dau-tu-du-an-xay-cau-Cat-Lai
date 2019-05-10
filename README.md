@@ -1,2 +1,3 @@
 # TP.HCM--ong-y-de-Dong-Nai-lam-chu-dau-tu-du-an-xay-cau-Cat-Lai
 "TP.HCM đồng ý để Đồng Nai làm chủ đầu tư dự án xây cầu Cát Lái. Thông tin này một lần nữa đã khiến thị trường bất động sản Nhơn Trạch sốt ảo trở lại  #DatnenNhonTrach, #Naeco  https://medium.com/@naecocompany.com/tp-hcm-%C4%91%E1%BB%93ng-%C3%BD-%C4%91%E1%BB%83-%C4%91%E1%BB%93ng-nai-l%C3%A0m-ch%E1%BB%A7-%C4%91%E1%BA%A7u-t%C6%B0-d%E1%BB%B1-%C3%A1n-x%C3%A2y-c%E1%BA%A7u-c%C3%A1t-l%C3%A1i-1a5ec27c3c13"
+<img src="http://naecocompany.com/wp-content/uploads/2019/04/%E1%BA%A3nh-3D-c%E1%BB%A7a-c%E1%BA%A7u-C%C3%A1t-L%C3%A1i.jpg" alt="TP.HCM đồng ý để Đồng Nai làm chủ đầu tư dự án xây cầu Cát Lái. Thông tin này một lần nữa đã khiến thị trường bất động sản Nhơn Trạch sốt ảo trở lại">
